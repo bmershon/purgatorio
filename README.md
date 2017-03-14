@@ -6,4 +6,4 @@ This third and final assignment for a course on Dante's Divine Comedy was not a 
 
 Why would I be drinking while writing a paper? Consider that it was about Dante Alighieri's *Purgatorio*, which is not nearly as entertaining nor as engaging as *Inferno* (though it is less tortuous than reading *Paradiso*). I thoroughly enjoyed writing the previous two papers, but this paper was uninspired and I didn't quite know what to do with myself. The beer was to allow my hands to type without reaching for the backspace button.
 
-Whichever grad student it was that read my paper chose to give it an *A*, probably for my cheeky closing sentence.
+Whichever grad student it was that read my paper chose to give it an *A*, probably for my cheeky closing sentence and willigness to disagree with Hollander.
